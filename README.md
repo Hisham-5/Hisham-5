@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - I wanna work with someone with exeperience, so I could get ahead of me peers and get me a good head start 🙃.
 - How to reach me: hishammohiuddin5@gmail.com 
 - Pronouns: he/him 😄
-- Fun fact: Totally irrelvant and doesn't make a difference, and doesn't matter, but my IQ is 137. (Doesn't matter btw, it's useless, accordin' to someone trust-worthy.)
+- I have kinda a high IQ. (Nvm, doesn't matter.)
 
